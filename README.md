@@ -6,4 +6,4 @@ READ IT.
 
 Read it hard.
 
-~ ZDK
+~ ZD
